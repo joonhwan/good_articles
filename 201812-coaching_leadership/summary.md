@@ -1,4 +1,6 @@
-# Special Report 1 : 밀레니얼세대 코칭
+동아비즈니스 리뷰에 올라온 글 모음. (dbr.donga.com)
+
+# Special Report 1 : [밀레니얼세대 코칭](http://dbr.donga.com/article/view/1201/article_no/8911)
 
 ## 밀레니얼 세대 특징 
 
